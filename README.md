@@ -10,4 +10,3 @@ http://www.instagram.com/traversymedia
 
 Junio 2020
 Omar Rosas
-
